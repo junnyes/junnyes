@@ -1,6 +1,6 @@
  ㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-ㅤㅤㅤ𝜗ৎㅤㅤ [straw](https://frommi.straw.page/) ㅤ[carrd](https://rjjwon.carrd.co) ㅤ[rentry](https://rentry.co/nmsuu)  ㅤ[atabook](https://namsuu.atabook.org/)ㅤ
+ㅤㅤㅤ𝜗ৎㅤㅤ [straw](https://frommi.straw.page/) ㅤ[carrd](https://rjjwon.carrd.co) ㅤ[rentry](https://rentry.co/rioss)  ㅤ[atabook](https://namsuu.atabook.org/)ㅤ
 
 <img width="593" height="421" alt="GgtC3CMa0AAKI9z-removebg-preview" src="https://github.com/user-attachments/assets/3b47a994-9779-46a0-b3a3-6bcc5d296d65" />
 
