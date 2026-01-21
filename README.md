@@ -2,6 +2,8 @@
 
 ㅤㅤㅤ𝜗ৎㅤㅤ [straw](https://naemch.straw.page) ㅤ[rentry](https://rentry.co/lovsrs)  ㅤ[atabook](https://namsuu.atabook.org/)ㅤ
 
+ineed to redo thissss !!!!!
+
 <img width="593" height="421" alt="GgtC3CMa0AAKI9z-removebg-preview" src="https://github.com/user-attachments/assets/3b47a994-9779-46a0-b3a3-6bcc5d296d65" />
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=junnyes&color=53B0AE&label=thangyu+love&base=35400&abbreviated=true) ㅤㅤ
