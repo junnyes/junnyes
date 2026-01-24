@@ -5,7 +5,6 @@
 
 ㅤㅤㅤㅤ<img width="1280" height="1280" alt="211 sin título_20260123234256" src="https://github.com/user-attachments/assets/89170cde-02a6-455d-af97-6b7f0180e25c" />
 
-art by
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=junnyes&color=FFFFFF&label=reddie+kiss&base=3500&abbreviated=true) ㅤㅤ
 
