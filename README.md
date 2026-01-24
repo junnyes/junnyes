@@ -3,7 +3,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage](https://naemch.straw.page) ㅤㅤ♡ㅤㅤ[rentry](https://rentry.co/lovsrs)  ㅤ
 
-ㅤㅤㅤㅤ<img width="1280" height="1280" alt="211 sin título_20260123234256" src="https://github.com/user-attachments/assets/89170cde-02a6-455d-af97-6b7f0180e25c" />
+<img width="1280" height="1280" alt="211 sin título_20260123235409" src="https://github.com/user-attachments/assets/a2d477ec-660b-47d0-91f2-c7773108e03b" />
 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=junnyes&color=FFFFFF&label=reddie+kiss&base=3500&abbreviated=true) ㅤㅤ
