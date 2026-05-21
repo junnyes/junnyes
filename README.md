@@ -6,7 +6,7 @@
 ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ <img width="400" height="400" alt="8b45f52a5a8ddb48671aea37442d2c08" src="https://github.com/user-attachments/assets/d179b33f-0925-44bf-bf83-c2023d0fb385" />
 
 
-ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ strawpage is outdated i'll update it soon ok
+ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ both links are outdated i'll update them soon ok
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=your-junnyes&color=023E8A&style=plastic)
  
