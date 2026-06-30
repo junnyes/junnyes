@@ -1,7 +1,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ [strawpage](https://mudfish.straw.page)ㅤㅤ♡ㅤㅤ[rentry](https://rentry.co/oshakip)  ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ [strawpage](https://mudfish.straw.page)ㅤㅤ♡ㅤㅤ[rentry](https://rentry.co/oshakip)  ㅤ
 
 ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ $${\color{#bce954}"ㅤ ㅤ there'sㅤnoㅤfurnitureㅤinㅤmyㅤhouse!!! ㅤ ㅤ"}$$
 
