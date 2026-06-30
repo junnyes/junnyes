@@ -3,6 +3,8 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [strawpage](https://mudfish.straw.page)ㅤㅤ♡ㅤㅤ[rentry](https://rentry.co/oshakip)  ㅤ
 
+ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ  ㅤㅤ$${\color{#bce954}theres \space no \space furniture \space in \space my \space house!!!}$$
+
 ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ <img width="498" height="498" alt="chespin-pokemon" src="https://github.com/user-attachments/assets/39afb906-f5ca-4183-853f-84290c58116d" />
 
 
