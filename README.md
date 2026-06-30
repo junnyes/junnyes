@@ -9,5 +9,5 @@
 
 
 
-ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=your-junnyes&color=green&style=plastic)
+ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=your-junnyes&color=green&style=plastic&label=˚꩜｡ּ)
  
