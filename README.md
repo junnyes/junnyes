@@ -3,8 +3,10 @@ wip wip wip wip wip
 
  <div align="center">
 
-ㅤ            ㅤ <img width="256" height="256" alt="a387d3dcb24a1f420718af5e9d583980" src="https://github.com/user-attachments/assets/2b380077-5db3-4085-8c5b-bbca8904d0a0" />
+ㅤ        <img width="256" height="256" alt="a387d3dcb24a1f420718af5e9d583980" src="https://github.com/user-attachments/assets/2b380077-5db3-4085-8c5b-bbca8904d0a0" />
 
+<img width="99" height="56" alt="d5jfxzn-0aab46c4-9c03-4020-b176-efb982f65f09" src="https://github.com/user-attachments/assets/9a9edad8-bb2a-4e9b-9892-ffa28cf7f63d" />
+<img width="99" height="56" alt="tumblr_4ee263202e1325f108137e343e68d546_52502735_250" src="https://github.com/user-attachments/assets/ff5906ef-f828-44ff-8347-14370c5e2229" />
 
 
 
