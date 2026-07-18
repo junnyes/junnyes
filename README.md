@@ -1,14 +1,16 @@
 
 wip wip wip wip wip
 
+ <div align="center">
+
 ㅤ            ㅤ <img width="256" height="256" alt="a387d3dcb24a1f420718af5e9d583980" src="https://github.com/user-attachments/assets/2b380077-5db3-4085-8c5b-bbca8904d0a0" />
 
 
 
 
-ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=your-junnyes&color=yellow&style=plastic&label=Tiro-Finale)
+ㅤ ㅤㅤ ㅤㅤ ㅤ‧₊˚𝄞 ㅤㅤ![](https://komarev.com/ghpvc/?username=your-junnyes&color=yellow&style=plastic&label=Tiro-Finale)
  
-<div align="left">
+<div align="center">
  <details>
 <summary> info! (^з^)-☆ </summary>
 <h6 align="left">
@@ -27,7 +29,7 @@ wip wip wip wip wip
 
 </details>
 
-<div align="left">
+<div align="center">
 <details>
 <summary> links! </summary>
 <h6 align="left"> 
@@ -38,13 +40,12 @@ click any of these 2 know more about me!!
 
 🍰 : [rentry.co](https://rentry.co/oshakip)
 
-🍰 : [prns.cc]() ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤ
+🍰 : [prns.cc](jjj) ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤ
 
 
 <br>
 
 </details>
 
-ㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
- ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ
- 
+ㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=true&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
