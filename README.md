@@ -1,7 +1,7 @@
-ㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+wip wip wip wip wip
 
-ㅤ            ㅤ <img width="498" height="279" alt="mami" src="https://github.com/user-attachments/assets/3a80d155-c804-4887-85f1-daed3864c850" />
+ㅤ            ㅤ <img width="256" height="256" alt="a387d3dcb24a1f420718af5e9d583980" src="https://github.com/user-attachments/assets/2b380077-5db3-4085-8c5b-bbca8904d0a0" />
 
 
 
@@ -38,6 +38,13 @@ click any of these 2 know more about me!!
 
 🍰 : [rentry.co](https://rentry.co/oshakip)
 
-🍰 : [prns.cc](https://pronouns.cc/@n.amsuu)
+🍰 : [prns.cc](https://pronouns.cc/@n.amsuu) ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤ
+
+
+<br>
+
+</details>
+
+ㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
  ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ
  
