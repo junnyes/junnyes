@@ -49,5 +49,10 @@ click any of these 2 know more about me!!
 
 </details>
 
+   <img width="200" height="20" alt="image-2024-05-23-223929890" src="https://github.com/user-attachments/assets/4cba2602-b52a-4edc-a59f-70087cc2f463" />
+
+
+
+
 ㅤ [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=true&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
