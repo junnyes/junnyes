@@ -40,7 +40,7 @@ click any of these 2 know more about me!!
 
 🍰 : [rentry.co](https://rentry.co/oshakip)
 
-🍰 : [prns.cc](jjj) ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤ
+🍰 : [prns.cc](https://pronouns.cc/@n.amsuu) ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤ
 
 
 <br>
