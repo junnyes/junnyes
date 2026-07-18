@@ -8,7 +8,7 @@ wip wip wip wip wip
 
 
 
-ㅤ ㅤㅤ ㅤㅤ ㅤ‧₊˚𝄞 ㅤㅤ![](https://komarev.com/ghpvc/?username=your-junnyes&color=yellow&style=plastic&label=Tiro-Finale)
+ㅤㅤ‧₊˚𝄞 ㅤㅤ![](https://komarev.com/ghpvc/?username=your-junnyes&color=yellow&style=plastic&label=Tiro-Finale)
  
 <div align="center">
  <details>
@@ -47,5 +47,5 @@ click any of these 2 know more about me!!
 
 </details>
 
-ㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=true&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+ㅤ ㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ebwurvvtvie52inpjmx5rxepdy&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=true&hide_remaster=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
