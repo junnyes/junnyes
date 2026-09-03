@@ -40,7 +40,7 @@ click any of these 2 know more about me!!
 
 🍰 : [strawpage](https://mudfish.straw.page)
 
-🍰 : [rentry.co](https://rentry.co/oshakip)
+🍰 : [rentry.co](https://rentry.co/shrrie)
 
 sign ata maybㅤ 👀👀ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤ
 
