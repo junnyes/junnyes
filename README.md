@@ -1,7 +1,9 @@
 ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤ
 
 
-ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ <img width="398" height="398" alt="1000145137" src="https://github.com/user-attachments/assets/537d55f0-86c4-4c97-9a86-236744205f50" />
+ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ <img width="235" height="190" alt="1000145131" src="https://github.com/user-attachments/assets/12410b65-4f3e-432c-bf73-3b491d1fc98d" />
+
+
 
 this is a wip
 
